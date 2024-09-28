@@ -1,3 +1,3 @@
 # Hitesh-Kumar-Resume
 
-![Resume](https://github.com/user-attachments/assets/1a06c4a3-1fdd-4721-b91b-9badd9674cfb)
+## Link To Resume: https://drive.google.com/file/d/1VGWdYDYe9Dy0xG-2NOZpxFN4tv8i6fD9/view?usp=sharing
